@@ -7,5 +7,4 @@
 ![Ekran görüntüsü 2023-05-13 153340](https://github.com/h4tice/cleverbot/assets/93051074/50ee36ba-a0d3-432d-ad76-d1f510e84d69)
 ![Ekran görüntüsü 2023-05-13 153405](https://github.com/h4tice/cleverbot/assets/93051074/801d9ede-4cca-4d6e-a29d-bc5f6b2c5b88)
 ![Ekran görüntüsü 2023-05-13 153618](https://github.com/h4tice/cleverbot/assets/93051074/45eacdeb-5e0f-4ac9-a62b-9899e50f4a56)
-![Ekran görüntüsü 2023-05-13 153708](https://github.com/h4tice/cleverbot/assets/930![Ekran görüntüsü 2023-05-13 154144](https://github.com/h4tice/cleverbot/assets/93051074/22114e62-9dfc-4e3c-a78a-8d45b1bfa511)
 ![Ekran görüntüsü 2023-05-13 154259](https://github.com/h4tice/cleverbot/assets/93051074/f98f661e-e4b0-4309-878b-49dfd2e9274e)
